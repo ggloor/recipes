@@ -6,11 +6,19 @@ One of the best presents I've received is when Jason taught me how to make bread
 
 There are a few keys to making good sourdough.
 
-- a good active starter culture
-
 - good flour
+
+- an active starter culture
 
 - a long rise and proof
 
-This is excellent bread and is very easy if you have an active starter.
+## The flour
+
+Every type of flour will behave differently. I have tried Robin Hood flour bread flour available at any grocery store, and artisanal flour
+
+## Maintaining the starter
+
+Maintaining a starter is nearly idiot proof, but I have tried! I have kept the same starter alive for over two years by following this simple
+
+
 
