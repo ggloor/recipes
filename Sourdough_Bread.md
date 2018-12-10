@@ -14,7 +14,7 @@ There are a few keys to making good sourdough.
 
 ## The flour
 
-Every type of flour will behave differently. I have tried Robin Hood flour bread flour available at any grocery store, and artisanal flour
+Every type of flour will behave differently. I have tried Robin Hood flour bread flour available at any grocery store, and artisanal flour from the Arva Flour Mill. I prefer the Arva Flour Mill flour.
 
 ## Maintaining the starter
 
@@ -28,7 +28,9 @@ Maintaining a starter is nearly idiot proof, but there are times when some resus
 
 4) Day 4 (Fri am). Remove almost all the starter from the container and add 1/2 cup whole wheat flour, 1/2 cup white flour, and 7/8 cup of cool water (72 degrees).
 
+5) Day 4 (Fri pm). At the end of the day, usually 5:30 or 6, I make bread with the starter. The remainder I store by adding 2 TB white flour, 2 TB whole wheat flour, and about 2 TB water. Mix,w
 
+#### Note: if the starter is very active, the maintenance and feeding can be done starting on Thurs AM. This appears to be seasonal and a little unpredictable.
 
 
 
