@@ -22,7 +22,7 @@ Whisk together:
 
 - 1 tbsp brandy extract (vanilla extract also works)
 
-Add in the:
+Add in:
 
 - 1/2 cup gluten free flour
 
@@ -34,7 +34,7 @@ and mix.
 
 ## baking
 
-Preheat oven to $375^o$F. Coat a 10 inch glass pan with oil (Chantal uses spray cooking oil) and dust with the gluten free flour.
+Preheat oven to 375 degrees F. Coat a 10 inch glass pan with oil (Chantal uses spray cooking oil) and dust with the gluten free flour.
 
 Place in the pan:
 
