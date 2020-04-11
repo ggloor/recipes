@@ -12,13 +12,11 @@ A family favourite!
 
 - just a little less than 1/3 cup brown sugar
 
-- 3/4 cup ketchup
-
-- 1/4 cup spicy barbecue sauce
+- 3/4 cup ketchup and 1/4 cup spicy barbecue sauce (can use more of one and less of other .... if no bbq sauce, add extra hot sauce and spices)
 
 - 1/4 cup lemon juice
 
-- 1 Tbsp Worchestershire sauce
+- 1 Tbsp Worcestershire sauce
 
 - 1 tsp Dijon mustard
 
@@ -28,9 +26,9 @@ A family favourite!
 
 - dash of Louisiana hot sauce or Tabasco
 
-## Cook it
+## Making Sauce (Can Make In Advance)
 
-Heat the oil on low and cook the onion until softened. Stir in the brown sugar and cook over low heat with constant stirring until the sugar has disolved.
+Heat the oil on low and cook the onion until softened but not browned. Stir in the brown sugar and cook over low heat with constant stirring until the sugar has disolved.
 
 Remove from heat and stir in the rest of the ingredients.
 
